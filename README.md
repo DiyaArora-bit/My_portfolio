@@ -24,7 +24,7 @@
 ---
 
 ### 🔗 Connect with me  
-- [LinkedIn](https://www.linkedin.com/in/diya-arora-8440/)  
+- [LinkedIn](https://www.linkedin.com/in/diya-arora-84407a295/)  
   
 
 ---
